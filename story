@@ -1,2 +1,6 @@
 once apon a time in a forest there lived a monkey who resided on a berry tree which was on the banks of a river
 in the same forest there lived a crocodile and it's wife...
+
+they then met and became friends
+when the monkey droped somthing into the water the crocodile could help to get it
+the crocodile's wife liked to cook
